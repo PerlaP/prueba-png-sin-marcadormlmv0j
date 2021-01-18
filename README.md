@@ -1,1 +1,0 @@
-# prueba-png-sin-marcadormlmv0j
